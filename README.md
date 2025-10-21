@@ -2,4 +2,4 @@
 
 ![](https://komarev.com/ghpvc/?username=hadeltism&abbreviated=trueey&color=791e25)
 
-if ur publicly sexual in any way on safe server i dont like u sorry (not rlly)
+if ur publicly sexual in any way on the safe server whether ur a minor or not i dont like u sorry (not rlly)
