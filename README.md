@@ -1,3 +1,5 @@
 <img width="1431" height="636" alt="image" src="https://github.com/user-attachments/assets/88390248-a87e-45f4-b084-ff880e3f1753" />
 
 ![](https://komarev.com/ghpvc/?username=hadeltism&abbreviated=trueey&color=791e25)
+
+if ur publicly sexual in any way on safe server i dont like u sorry (not rlly)
