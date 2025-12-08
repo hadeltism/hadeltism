@@ -3,6 +3,6 @@
 
 ![](https://komarev.com/ghpvc/?username=hadeltism&abbreviated=trueey&color=becd31)
 
-if ur publicly sexual in any way on the safe server whether ur a minor or not i dont like u sorry (not rlly)
+if youre publicly sexual in any way on the safe server whether youre a minor or not i do not like you
 
-if u have a valentino (hh) skin ur rlly weird idc what ur reasoning for it is, u smell!
+i do not care if you just like his design, if you like val (hh) in any way shape or form do not interact
